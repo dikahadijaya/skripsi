@@ -1,0 +1,2 @@
+# skripsi
+Skripsi Dika Hadijaya
